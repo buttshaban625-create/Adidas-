@@ -1,3 +1,7 @@
+<img width="1080" height="1875" alt="IMG_20260929_234845" src="https://github.com/user-attachments/assets/5d324f11-6b30-49f6-90fb-c009e3632c6b" />
+<img width="720" height="1280" alt="IMG-20260709-WA0157" src="https://github.com/user-attachments/assets/d7cf6029-8a4e-46ae-897b-aac11c6eb082" />
+<img width="943" height="1600" alt="IMG-20260809-WA0000" src="https://github.com/user-attachments/assets/22e0d609-fd77-42df-b345-926671a2ff39" />
+
 
 
 Uploading VID-20260709-WA0291.mp4…
